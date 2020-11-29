@@ -2,11 +2,10 @@
 
 [Twitter](https://twitter.com/VASUDEVRATHOD33)
 
-[Facebook](https://www.facebook.com/3rdwavethemes/)
+[Facebook](https://www.facebook.com/vasudev.rathod.wolfinfinity)
 
-[Dribbble](https://dribbble.com/Xiaoying)
+[Github](https://github.com/vasudevrathod)
 
-[Medium](https://medium.com/@3rdwave_themes)
+[Medium](https://medium.com/@vasudevrathod133999)
 
 [Linkedin](https://linkedin.com/in/vasudev-rathod-wolfinfinity)
-
